@@ -10,4 +10,4 @@ I couldn't update it anymore, because it reached the maximum size inside github.
 
 ## 📞 Contact
 - freitasfabiano08@gmail.com
-- @fabinhofreitastw
+- @ffabiiin
